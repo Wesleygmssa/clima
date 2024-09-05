@@ -1,0 +1,1 @@
+![Descrição da imagem](https://media.licdn.com/dms/image/v2/C4D22AQHqAN8e9NHDew/feedshare-shrink_800/feedshare-shrink_800/0/1643332752806?e=1728518400&v=beta&t=JRLfJMP7q4sdcmkbBgXsEs9lvAqYOlpU_wLdmWoX5z8)
